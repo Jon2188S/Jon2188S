@@ -1,4 +1,4 @@
-# Hi, I'm Shiva
+# Hi, I'm Shivaling 
 
 I'm a 2nd-year Mechanical Engineering student with a strong interest in technology, design, problem-solving, and building real-world projects.
 
